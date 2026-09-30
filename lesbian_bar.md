@@ -5,7 +5,7 @@ https://share.jotbird.com/soft-playful-scorpion
 
 ## *Written By Sonya Makepeace - 29th September 2026* ##
 
-![Girls at a bar](062.jpg)
+![Girls at a bar](https://github.com/sonyamakepeace12/empty/blob/main/063.jpg)
 
 **Ceri had been my closest friend for many years despite her being three years older. We had met when I was lucky enough to qualify for the regional junior swimming team. We had grown close over the years and then Ceri went off to University Manchester to study to become a nurse.**
 
