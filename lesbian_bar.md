@@ -27,7 +27,7 @@ She looked amazing, almost six feet tall, slim, wearing grey sweat pants and a h
 
 All sitting around the table and drinking white wine, Donna started the conversation. “So you’re the famous Izzy I have been told all about.”</p><p>I could feel my cheeks burning immediately. “Yes, I must be.” Knowing my past with Ceri, I wondered what she had told her. “Don’t worry, I don’t judge, and Ceri never shuts up about you,” Donna said with a smile on her face.
 
-![Girls at a bar](img/063.jpg)
+![Girls at a bar](https://github.com/sonyamakepeace12/empty/blob/main/062.jpg)
 
 We sat there for a few hours talking about how they had met, what I and Ceri did growing up, and what a night I was going to have. When I looked up at the clock it was close to eight in the evening. Ceri had made her way upstairs and had a shower, returning and saying to Donna the shower was now free.
 
